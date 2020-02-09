@@ -15,4 +15,16 @@
 
 7. https://ark.io/careers
 
-8.
+============================================
+Type: List of Company Matching Sites 8-12
+8. https://whitetruffle.com/ -
+
+9. https://underdog.io/ - startup -ჯობები
+
+10. https://triplebyte.com/ - 
+
+11. https://anthology.co/
+
+12. https://hired.com/
+
+==============================================
